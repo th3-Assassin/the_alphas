@@ -1,0 +1,2 @@
+# the_alphas
+we are the alphas, as a member of the alphas we are a leaderless group any power struggle will result in an immediate ban, we are grey hat hackers meaning we don't harm people we just scare them any stolen property physical or digital is on you and we will deny all responsibility. You cannot tell anybody other than proved members of the group that you are a part of the group (unless identity is hidden)
